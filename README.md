@@ -1,1 +1,1 @@
-Please read the attached pdf. 
+Please read any of the attached PDFs :)
